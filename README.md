@@ -45,3 +45,6 @@ refrigeration time 3  hours
 -   INGREDIENTS FOR THE TOP LAYER
 -   150  g  dark choc for the top
 -   1  tbsp  coconut oil
+
+## IK BEN ALLE STAPPEN DOOR ELKAAR AAN HET DOEN, 
+**maar volgens mij snap ik het wel**
